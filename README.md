@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @PaddyC94
+- Mechanical Engineer that builds projects on off days around his hobbies. Electronics, mechanical design, coding, software, travel and plants keep me busy.
